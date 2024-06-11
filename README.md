@@ -29,6 +29,6 @@
 
 https://drive.google.com/file/d/1L1yRhgZDrULdKrqh3_KgIiNHQZ6-Xn0e/view - KD Unity 3D 강좌 에셋
 크로스헤어 : https://kenney-assets.itch.io/crosshair-pack/download/eyJpZCI6MTE2NTM1MywiZXhwaXJlcyI6MTcxNzU2NjMwOH0%3d%2eN5y9KD%2bDqtcwLrNFBI2FKqrmrnM%3d
-타이틀 BGM : https://pixabay.com/ko/users/music_for_videos-26992513/?utm_source=link-attribution&utm_medium=referral&utm_campaign=music&utm_content=161568">Oleggio Kyrylkoww</a> from <a href="https://pixabay.com/music//?utm_source=link-attribution&utm_medium=referral&utm_campaign=music&utm_content=161568
+타이틀 BGM : https://pixabay.com/ko/users/music_for_videos-26992513/?utm_source=link-attribution&utm_medium=referral&utm_campaign=music&utm_content=161568
 폰트 : https://www.fontspace.com/frozen-ice-font-f16772
-발자국 효과음 : https://pixabay.com/ko/users/universfield-28281460/?utm_source=link-attribution&utm_medium=referral&utm_campaign=music&utm_content=191995">UNIVERSFIELD</a> from <a href="https://pixabay.com/sound-effects//?utm_source=link-attribution&utm_medium=referral&utm_campaign=music&utm_content=191995
+발자국 효과음 : https://pixabay.com/ko/users/universfield-28281460/?utm_source=link-attribution&utm_medium=referral&utm_campaign=music&utm_content=191995
